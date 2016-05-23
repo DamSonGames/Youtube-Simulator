@@ -10,4 +10,4 @@ How to play:
 
 Reviews: Game of the year - Romek Fermont.
 
-- Alexander van Leeuwen Co-founder of Dam Son games (wow that sounds lame)
+-Alexander van Leeuwen Co-founder of Dam Son games (wow that sounds lame)
